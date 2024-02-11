@@ -1,1 +1,1 @@
-sveiki gyvi 
+sveiki gyvi  kodel tu nepasikeiti givate
